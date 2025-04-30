@@ -51,6 +51,12 @@ Upload to GitHub Pages for free hosting.
 
 
 ## OUTPUT
+![image](https://github.com/user-attachments/assets/a34519ee-af4b-4a0b-abd0-045942d39b44)
+![image](https://github.com/user-attachments/assets/b9f0e712-646a-4610-81a3-977919ba9e39)
+![image](https://github.com/user-attachments/assets/2d5b3f54-6451-4ec2-b995-74a1aac132e1)
+
+
+
 
 
 ## RESULT
